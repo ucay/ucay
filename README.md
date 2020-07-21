@@ -13,7 +13,7 @@ Dilunakkan lembut perasaan
 Pahitnya kesedihan  
 Disamarkan manis keceriaan  
 
-Cangkir itu masih penuh 
+Cangkir itu masih penuh  
 Seperti awal seduh  
 Tak kurang setetes peluh  
 
